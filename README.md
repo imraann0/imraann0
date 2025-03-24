@@ -18,7 +18,6 @@
 
 ### 📫 Connect with Me  
 💌 **Email:** imran@muslamica.app  
-💼 **LinkedIn:** [linkedin.com]([https://linkedin.com/](https://www.linkedin.com/in/imraann0))  
-🌐 **Website:** [www.muslamica.app](https://www.muslamica.app/)  
+💼 **LinkedIn:** [linkedin.com/in/imraann0](https://www.linkedin.com/in/imraann0)
 
 ⚡ **Fun Fact:** everything that starts with the name of god is bound to succeed!  
