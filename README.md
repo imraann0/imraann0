@@ -21,3 +21,5 @@
 💼 **LinkedIn:** [linkedin.com/in/imraann0](https://www.linkedin.com/in/imraann0)
 
 ⚡ **Fun Fact:** everything that starts with the name of god is bound to succeed!  
+
+<img src="https://raw.githubusercontent.com/dominik-zoro/dominik-zoro/output/snake.svg" alt="Snake animation" />
